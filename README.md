@@ -11,7 +11,7 @@ c+h ok! feel free to int w/ me, (basic dni criteria ༒︎ -16) im mostly offtab
 
 
 
-[strawpage](https://file.garden/ahmhtt556FSwWAKA/biohazardagger.straw.page)
+[strawpage](https://biohazardagger.straw.page)
 
 
 [](https://file.garden/ahmhtt556FSwWAKA/tumblr_65831b92d8baf787fdfac8822d50b393_d0d91e7e_640.webp)
