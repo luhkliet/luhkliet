@@ -13,7 +13,7 @@ im mostly offtab so id be glad if you whisper.
 
 
 
-[strawpage](https://biohazardagger.straw.page)
+[strawpage](https://biohazardagger.straw.page)  ༒︎   [steam](https://steamcommunity.com/profiles/76561199018238086) 
 
 
 [](https://file.garden/ahmhtt556FSwWAKA/tumblr_65831b92d8baf787fdfac8822d50b393_d0d91e7e_640.webp)
