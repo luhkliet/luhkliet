@@ -7,7 +7,7 @@
 
 c+h always ok! feel free to int w/ me anytime.
 
-(basic dni criteria ༒︎ -16) ⌖━ im mostly offtab so id be glad if you w2i  ^^.
+(basic dni criteria ༒︎ pro/darkshippers) ⌖━ im mostly offtab so id be glad if you w2i  ^^.
 
 
 ![](https://file.garden/ahmhtt556FSwWAKA/tumblr_50b1b51122fbf07b01995bc72078db2f_71322127_75.webp) ![](https://file.garden/ahmhtt556FSwWAKA/tumblr_06cbb9e6c7c8aa129aa6c5e71507511e_5aef0e9f_75.webp) ![](https://file.garden/ahmhtt556FSwWAKA/tumblr_50b1b51122fbf07b01995bc72078db2f_71322127_75.webp)
