@@ -5,9 +5,10 @@
 
 ![](https://file.garden/ahmhtt556FSwWAKA/tumblr_oo9l0zfiEE1w5j5w8o2_250.webp)
 
-c+h ok! feel free to int w/ me, (basic dni criteria ༒︎ -16)
+c+h always ok! feel free to int w/ me anytime.
 
-im mostly offtab so id be glad if you whisper.
+(basic dni criteria ༒︎ -16) ⌖━ im mostly offtab so id be glad if you w2i  ^^.
+
 
 ![](https://file.garden/ahmhtt556FSwWAKA/tumblr_50b1b51122fbf07b01995bc72078db2f_71322127_75.webp) ![](https://file.garden/ahmhtt556FSwWAKA/tumblr_06cbb9e6c7c8aa129aa6c5e71507511e_5aef0e9f_75.webp) ![](https://file.garden/ahmhtt556FSwWAKA/tumblr_50b1b51122fbf07b01995bc72078db2f_71322127_75.webp)
 
@@ -19,3 +20,6 @@ im mostly offtab so id be glad if you whisper.
 [](https://file.garden/ahmhtt556FSwWAKA/tumblr_65831b92d8baf787fdfac8822d50b393_d0d91e7e_640.webp)
 
 ![](https://file.garden/ahmhtt556FSwWAKA/tumblr_65831b92d8baf787fdfac8822d50b393_d0d91e7e_640.webp)
+
+p.s. ignore the 1k hour playtime on marvel rivals... ![](https://pixels.crd.co/assets/images/gallery29/47b9c37e.gif?v=29416114)
+
