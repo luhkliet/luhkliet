@@ -14,12 +14,12 @@ c+h always ok! feel free to int w/ me anytime.
 
 
 
-[strawpage](https://biohazardagger.straw.page)  ༒︎   [steam](https://steamcommunity.com/profiles/76561199018238086) 
+[strawpage](https://biohazardagger.straw.page)  ༒︎
 
 
 [](https://file.garden/ahmhtt556FSwWAKA/tumblr_65831b92d8baf787fdfac8822d50b393_d0d91e7e_640.webp)
 
 ![](https://file.garden/ahmhtt556FSwWAKA/tumblr_65831b92d8baf787fdfac8822d50b393_d0d91e7e_640.webp)
 
-p.s. ignore the 1k hour playtime on marvel rivals... ![](https://pixels.crd.co/assets/images/gallery29/47b9c37e.gif?v=29416114)
+
 
