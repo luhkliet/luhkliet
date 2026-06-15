@@ -14,7 +14,7 @@ c+h always ok! feel free to int w/ me anytime.
 
 
 
-[strawpage](https://biohazardagger.straw.page)  ༒︎ [interests](https://liamsinterests.straw.page)
+[strawpage](https://biohazardagger.straw.page)  ༒︎ [atabook](https://operavampire.atabook.org) ༒︎ [interests](https://liamsinterests.straw.page)
 
 
 [](https://file.garden/ahmhtt556FSwWAKA/tumblr_65831b92d8baf787fdfac8822d50b393_d0d91e7e_640.webp)
