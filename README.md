@@ -1,8 +1,5 @@
 <div align="center">
 
-![](https://file.garden/ahmhtt556FSwWAKA/image_2026-06-18_170857289-removebg-preview%20(1).png)
-
-
 ![](https://file.garden/ahmhtt556FSwWAKA/tumblr_74069a8109fbcf06e61935c31ee451de_195c20b9_400.gif)
 
 c+h always ok! ⌖━ im mostly offtab so id be glad if you w2i!
