@@ -1,25 +1,22 @@
 <div align="center">
 
-![](https://neckdoll.zombie.jp/material/flame/hanecross/parts/frame-hanecross-botom.gif)
+![](https://file.garden/ahmhtt556FSwWAKA/image_2026-06-18_170857289-removebg-preview%20(1).png)
 
 
-![](https://file.garden/ahmhtt556FSwWAKA/tumblr_oo9l0zfiEE1w5j5w8o2_250.webp)
+![](https://file.garden/ahmhtt556FSwWAKA/tumblr_74069a8109fbcf06e61935c31ee451de_195c20b9_400.gif)
 
-c+h always ok! feel free to int w/ me anytime.
+c+h always ok! ⌖━ im mostly offtab so id be glad if you w2i!
 
-(basic dni criteria, -16, ༒︎ pro/darkshippers) ⌖━ im mostly offtab so id be glad if you w2i  ^^.
+(basic dni criteria, -16, ༒︎ pro/darkshippers) 
 
 
 ![](https://file.garden/ahmhtt556FSwWAKA/tumblr_50b1b51122fbf07b01995bc72078db2f_71322127_75.webp) ![](https://file.garden/ahmhtt556FSwWAKA/tumblr_06cbb9e6c7c8aa129aa6c5e71507511e_5aef0e9f_75.webp) ![](https://file.garden/ahmhtt556FSwWAKA/tumblr_50b1b51122fbf07b01995bc72078db2f_71322127_75.webp)
 
 
 
-[strawpage](https://biohazardagger.straw.page)  ༒︎ [atabook](https://operavampire.atabook.org) ༒︎ [interests](https://liamsinterests.straw.page)
+[straw](https://biohazardagger.straw.page)  ༒︎ [ata](https://operavampire.atabook.org) ༒︎ [interests](https://liamsinterests.straw.page)
 
 
-[](https://file.garden/ahmhtt556FSwWAKA/tumblr_65831b92d8baf787fdfac8822d50b393_d0d91e7e_640.webp)
-
-![](https://file.garden/ahmhtt556FSwWAKA/tumblr_65831b92d8baf787fdfac8822d50b393_d0d91e7e_640.webp)
 
 
 
