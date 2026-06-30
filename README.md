@@ -2,7 +2,7 @@
 
 ﹌﹌﹌﹌﹌﹌﹌﹌![](https://file.garden/ahmhtt556FSwWAKA/tumblr_30dcb8590864f1f8b5ee82b2a78f8953_c25e11e9_100.webp) ﹌﹌﹌﹌﹌﹌﹌﹌
 
-![](https://file.garden/ahmhtt556FSwWAKA/tumblr_8a80a304a07b69eb3e66f22459843a76_10dd00af_1280.webp)
+![](https://file.garden/ahmhtt556FSwWAKA/image_2026-07-01_010814185.png)
 
 𓌜━ c+h always ok. ⌖━ im mostly offtab so id be glad if you w2i! ━⌱
 
