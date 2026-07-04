@@ -6,7 +6,9 @@
 
 ![](https://file.garden/ahmhtt556FSwWAKA/G7sW-Q-WMAAkqnt%20(2).png)
 
-𓌜━ c+h always ok ━ w2i ![](https://i.imgur.com/4QA73Yk.gif) basic dni criteria, pro/darkshippers yada yada ━⌖
+𓌜━ c+h always ok ━ w2i ![](https://i.imgur.com/4QA73Yk.gif) basic dni criteria, pro/darkshippers yada yada ━⌖ ;
+art by smlsim
+
 
 
 
