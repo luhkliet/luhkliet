@@ -4,15 +4,15 @@
 
 ༒︎ [straw](https://biohazardagger.straw.page) ༒︎ [byi](https://liamsinterests.straw.page) ༒︎ [新book](https://operavampire.atabook.org)
 
+
+𓌜━ c+h always ok ━ w2i! .  basic dni criteria, pro/darkshippers yada yada ━⌖ ; art by smlsim
+
+
+
 ![](https://file.garden/ahmhtt556FSwWAKA/G7sW-Q-WMAAkqnt%20(2).png)
 
-𓌜━ c+h always ok ━ w2i ![](https://i.imgur.com/4QA73Yk.gif) basic dni criteria, pro/darkshippers yada yada ━⌖ ;
-art by smlsim
 
 
-
-
-![](https://file.garden/ahmhtt556FSwWAKA/tumblr_50b1b51122fbf07b01995bc72078db2f_71322127_75.webp) ![](https://file.garden/ahmhtt556FSwWAKA/tumblr_06cbb9e6c7c8aa129aa6c5e71507511e_5aef0e9f_75.webp) ![](https://file.garden/ahmhtt556FSwWAKA/tumblr_50b1b51122fbf07b01995bc72078db2f_71322127_75.webp)
 
 
 
