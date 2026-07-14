@@ -4,11 +4,9 @@
 
  ༒︎ [straw](https://biohazardagger.straw.page) ༒︎ [byi](https://liamsinterests.straw.page) ༒︎ [新book](https://operavampire.atabook.org)
 
+![](https://file.garden/ahmhtt556FSwWAKA/Screenshot%202026-07-14%20101055%20(4).png) 
 
-𓌜━ c+h always ok ━ w2i! .  basic dni criteria, pro/darkshippers yada yada ━⌖ ; art by atxmpalmers
-
-
-![](https://file.garden/ahmhtt556FSwWAKA/Screenshot%202026-07-14%20101055%20(4).png)
+; art by atxmpalmers
 
 ![](https://file.garden/ahmhtt556FSwWAKA/image_2026-07-14_135649625-removebg-preview%20(2).png)
 
