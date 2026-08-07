@@ -4,9 +4,9 @@
 
  ༒︎ [straw](https://biohazardagger.straw.page) ༒︎ [新book](https://operavampire.atabook.org) ༒︎ [prns](https://en.pronouns.page/@biohazardagger)
 
-![](https://file.garden/ahmhtt556FSwWAKA/Screenshot%202026-07-14%20101055%20(4).png) 
+![](https://file.garden/ahmhtt556FSwWAKA/HGqnBFkWIAA8Hfh%20(1).png) 
 
-; art by atxmpalmers
+; art by MUGSIEYT
 
 ![](https://file.garden/ahmhtt556FSwWAKA/image_2026-07-14_135649625-removebg-preview%20(2).png)
 
