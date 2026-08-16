@@ -6,11 +6,10 @@
 
  ༒︎ [straw](https://chrispupfield.straw.page) ☣︎ [新book](https://operavampire.atabook.org) ༒︎ 
  
-![](https://file.garden/ahmhtt556FSwWAKA/tumblr_8fa1b3e83b62c21a3a7802154b7e363d_cadef6e6_400.jpg)
 
-![](https://file.garden/ahmhtt556FSwWAKA/Screenshot_2026-08-13_183237-removebg-preview%20(1).png) 
+![](https://file.garden/ahmhtt556FSwWAKA/Screenshot%202026-08-16%20225315.png) 
  
- ⸝ art by rl30rocket   ⸝
+ ⸝ art by atxmpalmers   ⸝
 
  
- ![](https://file.garden/ahmhtt556FSwWAKA/image_2026-07-14_135649625-removebg-preview%20(2).png)
+ ![](https://file.garden/ahmhtt556FSwWAKA/Screenshot%202026-08-16%20224550.png)
