@@ -6,7 +6,7 @@
 
 ༒︎ <sub>[straw](https://biohazardagger.straw.page) ━ [新book](https://operavampire.atabook.org)</sub> ༒︎ 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Mozilla+Headline&weight=150&size=15&duration=4000&pause=1&color=D42F17&center=true&multiline=true&width=435&lines=we+kill+everyone+with+arrowheads%2C;arrowheads%2C+arrowheads%2C+arrowheads.+.+." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Mozilla+Headline&weight=150&size=15&duration=4000&pause=1&color=D42F17&center=true&width=435&lines=threw+my+heart+over+a+fence;+%28well%2C+i+thought+i'd+make+it+painful%29;if+back+then+only+i+knew.+.+.;%28if+i+only+knew%2C+i%E2%80%99d+start+it+over%29+.+.+." alt="Typing SVG" /></a>
  
 
 ![](https://file.garden/ahmhtt556FSwWAKA/fa43579787d09cf89d7322da5a70e253-removebg-preview%20(1).png) 
