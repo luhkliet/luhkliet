@@ -2,10 +2,10 @@
 
 
 
-<sub>![](https://file.garden/ahmhtt556FSwWAKA/tumblr_30dcb8590864f1f8b5ee82b2a78f8953_c25e11e9_100.webp)<sub>
+<sub>![](https://file.garden/ahmhtt556FSwWAKA/14.png)<sub>
 [![](https://file.garden/ahmhtt556FSwWAKA/text-generator-picture%20(1)%20(1).png)](https://guns.lol/biohazardagger) 
  
- ![](https://file.garden/ahmhtt556FSwWAKA/download%20(3).png)
+ ![](https://file.garden/ahmhtt556FSwWAKA/image_2026-10-22_030846262-removebg-preview%20(1).png)
 [![](https://file.garden/ahmhtt556FSwWAKA/text-generator-picture%20(2).png)](https://operavampire.atabook.org)
 
  <sub>[straw](https://biohazardagger.straw.page)
