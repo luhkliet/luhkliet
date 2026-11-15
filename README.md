@@ -1,30 +1,11 @@
+
 <div align="center">
 
+<img src="https://file.garden/ahmhtt556FSwWAKA/chris.png" width="170" align="left" style="margin-right:-250px;">
 
-<table>
-<tr>
-<td width="40%" align="center" valign="middle">
-
-<img src="https://file.garden/ahmhtt556FSwWAKA/chris.png" width="170">
+<img src="https://file.garden/ahmhtt556FSwWAKA/download%20(1).png" width="125">
 
 <br>
-
-
-</td>
-
-<td width="60%" align="center" valign="middle">
-
-
-<img src="https://file.garden/ahmhtt556FSwWAKA/download%20(1).png" width="100">
-
-
-
-<br>
-
-
-
-<br>
-
 
 ₊˚ ✧ ━━━━━━━━━⊱⋆⊰━━━━━━━━━ ✧ ₊˚
 
@@ -36,25 +17,20 @@
 
 <br>
 
-
 <a href="https://pronouns.cc/@biohazardagger"><img src="https://file.garden/ahmhtt556FSwWAKA/cooltext519153962296344.png" width="90"></a><a href="https://operavampire.atabook.org"><img src="https://file.garden/ahmhtt556FSwWAKA/cooltext519153914657195.png" width="80"></a>
-<br>
 
+<br>
 
 ₊˚ ✧ ━━━━━━━━━⊱⋆⊰━━━━━━━━━ ✧ ₊˚
 
+<br>
 
-
-<sub>[straw](https://biohazardagger.straw.page)
-
-
-<a href="https://github.com/kittinan/spotify-github-profile">
-<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=pcua56yvmmnc2xy6lue7fx3b6&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=true&bar_color=ffffff&bar_color_cover=false">
-</a>
+<a href="https://biohazardagger.straw.page">straw</a>
 
 <br>
 
-</td>
-</tr>
-</table>
+</a>
 
+</div>
+<a href="https://github.com/kittinan/spotify-github-profile">
+<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=pcua56yvmmnc2xy6lue7fx3b6&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=true&bar_color=ffffff&bar_color_cover=false">
