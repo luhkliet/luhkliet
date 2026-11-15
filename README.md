@@ -20,7 +20,6 @@
 <br>
 
 
-<img src="https://file.garden/ahmhtt556FSwWAKA/image_2026-11-15_233424709.png" width="280">
 
 <br>
 
