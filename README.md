@@ -1,7 +1,7 @@
 
 <div align="center">
 
-<img src="https://file.garden/ahmhtt556FSwWAKA/chris.png" width="170" align="left" style="margin-right:-250px;">
+<img src="https://file.garden/ahmhtt556FSwWAKA/chris.png" width="150" align="left" style="margin-right:-250px;">
 
 <img src="https://file.garden/ahmhtt556FSwWAKA/download%20(1).png" width="125">
 
