@@ -3,7 +3,7 @@
 <tr>
 <td width="40%" align="center" valign="middle">
 
-<img src="https://file.garden/ahmhtt556FSwWAKA/weskin.png" width="220">
+<img src="https://file.garden/ahmhtt556FSwWAKA/chris.png" width="170">
 
 <br>
 
@@ -30,7 +30,7 @@
 <br>
 
 <a href="https://git.io/typing-svg">
-<img src="https://readme-typing-svg.demolab.com?font=Special+Elite&size=27&duration=2000&pause=800&color=D42F17&center=true&width=435&lines=it's+sheer+perfection" alt="Vintage Typewriter">
+<img src="https://readme-typing-svg.demolab.com?font=Special+Elite&size=27&duration=2000&pause=800&color=D42F17&center=true&width=435&lines=for+a+future+with+no+fear" alt="Vintage Typewriter">
 </a>
 
 <br>
