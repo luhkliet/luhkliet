@@ -25,7 +25,8 @@
 
 <br>
 
-<a href="https://biohazardagger.straw.page">straw</a>
+<a href="https://biohazardagger.straw.page">straw</a> ✧
+<a href="https://guns.lol/biohazardagger">guns</a>
 
 <br>
 
